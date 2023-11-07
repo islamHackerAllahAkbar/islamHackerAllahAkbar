@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @islamHackerAllahAkbar
+- 👀 I’m interested in hacking and kali linux
+- 🌱 I’m currently learning python
+- 📫 How to reach me ao89954512@gmail.com
